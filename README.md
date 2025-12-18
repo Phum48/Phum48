@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Phum48
 - 👀 I like to play games, sport and computer stuff which I'm trying to study about it.
-- 🌱 I’m currently learning in high school.
+- 🌱 I'm study game designer major.
 - 💞️ I would like some tips and tricks to help me learn about computer.
 - 📫
 
